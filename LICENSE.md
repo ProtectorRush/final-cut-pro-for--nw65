@@ -1,4 +1,4 @@
-
+Get the ultimate Final Cut Pro for macOS addon with Final Cut Pro for macOS custom Addon: keyframe-animation & color-correction. Featuring keyframe-animation and color-correction,
 
 
 
